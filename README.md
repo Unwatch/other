@@ -1,1 +1,1 @@
-# other
+使用xmind打开。
